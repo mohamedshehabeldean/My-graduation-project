@@ -31,3 +31,7 @@ Our platform addresses the challenges of traditional online learning by prioriti
 A special thanks to our Professor Ahmed Shalaby and Engineer Hossam Fares for their invaluable support and guidance throughout this journey.
 
 Feel free to reach out if you'd like to learn more about our project or explore potential collaborations. Together, we can transform the future of education! 🌐
+
+
+## video
+https://www.linkedin.com/posts/yahya-hamza-923575220_excited-to-share-the-culmination-of-our-activity-7212495691611312128-qlet?utm_source=share&utm_medium=member_desktop
